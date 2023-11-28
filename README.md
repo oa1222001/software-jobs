@@ -222,123 +222,120 @@
 106. [LinkedIn
      post](https://www.linkedin.com/posts/bahi-hussein_i-have-the-following-job-opportunities-remote-activity-7103414764432695301-6Ebr/?utm_source=share&utm_medium=member_android)
 
-107. 
 
-108. [Transtecbds](mailto:hr@transtecbds.com)[Reliance
+107. [Transtecbds](mailto:hr@transtecbds.com)[Reliance
      Health](https://eg.indeed.com/viewjob?jk=1480f3191290a4cf&tk=1hbkv4f14j6dv800&from=serp&vjs=3)
 
-109. Tawzef (Got invited by Maram Hossam to send my cv on LinkedIn
+108. Tawzef (Got invited by Maram Hossam to send my cv on LinkedIn
      messages)
 
-110. [Leoni](mailto:nada.abo-elleil@leoni.com)
+109. [Leoni](mailto:nada.abo-elleil@leoni.com)
 
-111. [ISchool](https://www.linkedin.com/posts/nour-ahmeddd-_google-forms-sign-in-activity-7117160950532648960-OJa4/?utm_source=share&utm_medium=member_android)
+110. [ISchool](https://www.linkedin.com/posts/nour-ahmeddd-_google-forms-sign-in-activity-7117160950532648960-OJa4/?utm_source=share&utm_medium=member_android)
 
-112. [Areeb
+111. [Areeb
      Technology](https://areebgroup.zohorecruit.com/jobs/Careers/489939000008733100/Internship-2023-11---Backend-Developer?source=CareerSite)
 
-113. [Qreeb](https://www.linkedin.com/jobs/view/3736176280/?alternateChannel=search&refId=g138Epn6vtl5FFHb1aWhlw%3D%3D&trackingId=HGSon40hlFQGUM9PvocNaw%3D%3D)
+112. [Qreeb](https://www.linkedin.com/jobs/view/3736176280/?alternateChannel=search&refId=g138Epn6vtl5FFHb1aWhlw%3D%3D&trackingId=HGSon40hlFQGUM9PvocNaw%3D%3D)
 
-114. [Thndr](https://thndr-talent.freshteam.com/jobs/53r4Ig-PYrBQ/software-engineer-node-js?ft_source=5000357959&ft_medium=5000292918)
+113. [Thndr](https://thndr-talent.freshteam.com/jobs/53r4Ig-PYrBQ/software-engineer-node-js?ft_source=5000357959&ft_medium=5000292918)
 
-115. [Sumerge](https://www.sumerge.com/job-description/?jobID=9)
+114. [Sumerge](https://www.sumerge.com/job-description/?jobID=9)
 
-116. [Core Technology
+115. [Core Technology
      Solutions](https://www.linkedin.com/jobs/view/3745360735)
 
-117. [Sumerge Talent
+116. [Sumerge Talent
      Program](https://www.sumerge.com/job-description/?jobID=59)
 
-118. [Vodafone Discover Graduate Program - Technology IT
+117. [Vodafone Discover Graduate Program - Technology IT
      2024](https://www.linkedin.com/jobs/view/3749812360/)
 
-119. [Travolic](https://wuzzuf.net/jobs/p/WKCHe0xpj15F-Junior-Backend-Developer-Travolic-LLc-Cairo-Egypt)
+118. [Travolic](https://wuzzuf.net/jobs/p/WKCHe0xpj15F-Junior-Backend-Developer-Travolic-LLc-Cairo-Egypt)
 
-120. [MarkTune](https://www.linkedin.com/jobs/view/3751468407)
+119. [MarkTune](https://www.linkedin.com/jobs/view/3751468407)
 
-121. [Block Gemini](https://www.linkedin.com/jobs/view/3750847082/)
+120. [Block Gemini](https://www.linkedin.com/jobs/view/3750847082/)
 
-122. [CrossWorkers .net
+121. [CrossWorkers .net
      Internship](https://careers.crossworkers-egypt.com/jobs/2889066-net-developer-winter-internship)
 
-123. [Dwarha](https://www.glassdoor.com/job-listing/swe-backend-dawarha-JV_IC3438985_KO0,11_KE12,19.htm?jl=1008957766075&pos=101&ao=1136043&s=239&guid=0000018b9337eb479514e60afd4274c7&src=GD_JOB_AD&t=JA&vt=e&uido=EE2B0C907969168CC97EEE9B67FF3076&ea=1&cs=1_dca9d183&cb=1699168399647&jobListingId=1008957766075&cancel=true&smart-apply-action=POST_APPLY&ctt=1699168607144)
+122. [Dwarha](https://www.glassdoor.com/job-listing/swe-backend-dawarha-JV_IC3438985_KO0,11_KE12,19.htm?jl=1008957766075&pos=101&ao=1136043&s=239&guid=0000018b9337eb479514e60afd4274c7&src=GD_JOB_AD&t=JA&vt=e&uido=EE2B0C907969168CC97EEE9B67FF3076&ea=1&cs=1_dca9d183&cb=1699168399647&jobListingId=1008957766075&cancel=true&smart-apply-action=POST_APPLY&ctt=1699168607144)
 
-124. [Owais](https://www.linkedin.com/comm/jobs/view/3754541531/?midToken=AQGJx4VAaP_wDg&midSig=3TTI_76OA28r01&trk=eml-email_application_confirmation_with_nba_01-applied_jobs-5-applied_job&trkEmail=eml-email_application_confirmation_with_nba_01-applied_jobs-5-applied_job-null-f721rd%7Elolnvopy%7Enx-null-neptune%2Fjobs%2Eview&lipi=urn%3Ali%3Apage%3Aemail_email_application_confirmation_with_nba_01%3BlTXbS31rQYuFcr7zdKkr8A%3D%3D)
+123. [Owais](https://www.linkedin.com/comm/jobs/view/3754541531/?midToken=AQGJx4VAaP_wDg&midSig=3TTI_76OA28r01&trk=eml-email_application_confirmation_with_nba_01-applied_jobs-5-applied_job&trkEmail=eml-email_application_confirmation_with_nba_01-applied_jobs-5-applied_job-null-f721rd%7Elolnvopy%7Enx-null-neptune%2Fjobs%2Eview&lipi=urn%3Ali%3Apage%3Aemail_email_application_confirmation_with_nba_01%3BlTXbS31rQYuFcr7zdKkr8A%3D%3D)
 
-125. [CrossWorkers NodeJS
+124. [CrossWorkers NodeJS
      Internship](https://careers.crossworkers-egypt.com/jobs/1788324-nodejs-developer-winter-internship)
 
-126. [Raisa](https://raisaegypt.recruitee.com/o/software-engineer-be-2)
+125. [Raisa](https://raisaegypt.recruitee.com/o/software-engineer-be-2)
 
-127. [InstaBug](https://instabug.bamboohr.com/careers/42)
+126. [InstaBug](https://instabug.bamboohr.com/careers/42)
 
-128. [Undergrad Software Intern
+127. [Undergrad Software Intern
      Dell](https://dell.wd1.myworkdayjobs.com/en-US/External/job/Undergraduate-Intern--Backend-Software-Engineer_R228330)
 
-129. [Software Intern
+128. [Software Intern
      Dell](https://dell.wd1.myworkdayjobs.com/en-US/External/job/Software-Engineering-Intern_R228333)
 
-130. [Software Engineer-1
+129. [Software Engineer-1
      Dell](https://jobs.dell.com/job/cairo/software-engineer-1/375/56988041952)
 
-131. [AlexApps](https://wuzzuf.net/internship/3Zi7miy9nNu5-Net-core-C---Internship---Remotely-Alexandria-For-Programming-Alexandria-Egypt)
+130. [AlexApps](https://wuzzuf.net/internship/3Zi7miy9nNu5-Net-core-C---Internship---Remotely-Alexandria-For-Programming-Alexandria-Egypt)
 
-132. [Procore SW
+131. [Procore SW
      intern](https://careers.procore.com/jobs/15ac7045-cf4c-4a88-93a1-2b74d6ad945a?source=linkedin_limited_listing&utm_source=linkedin_limited_listing#apply)
 
-133. [Swift ACT Backend
+132. [Swift ACT Backend
      Intern](https://www.linkedin.com/posts/swift-act_a-call-to-all-young-engineers-winter-internship-activity-7130491748601987072-t24A/)
 
-134. [Vehiclevo Junior SW Engineer](mailto:careers-egy@vehiclevo.com)
+133. [Vehiclevo Junior SW Engineer](mailto:careers-egy@vehiclevo.com)
 
-135. [FCDIS
+134. [FCDIS
      Internship](https://forms.office.com/Pages/ResponsePage.aspx?id=L_Iop2ul-U2f2wsAI_LGHxiVydRqkDNBgPkRK__b5CFUQU8yUFNRNElWSEdIQVJGWkxIRldFV1BFMy4u)
 
-136. [Raya SWE
+135. [Raya SWE
      Internship](mailto:cv_itlob@rayacorp.com,%20%22rayait_info@rayacorp.com%22%20%3crayait_info@rayacorp.com%3e)
 
-137. [VAS SWE Internship](mailto:career@vas-eg.net)
+136. [VAS SWE Internship](mailto:career@vas-eg.net)
 
-138. [Raya Tech University
+137. [Raya Tech University
      Internship](https://egyincs.com/opportunities/raya-tech-university-program-at-raya-it-company/)
      , [Another Link](https://surveys.rayacorp.com/s/RayaTechUni/)\
      \
      The Following from Technovate Summit
 
-139. [Fawry](+20 128 223 0264)
+138. [Fawry](+20 128 223 0264)
 
-140. [Ultimate Academy](https://ultimatejobs.net/technovate-summit/)
+139. [Ultimate Academy](https://ultimatejobs.net/technovate-summit/)
      Software Engineer
 
-141. [Phoenix MEA -- Software Engineer](mailto:m.diaa@phoenix-mea.com)
+140. [Phoenix MEA -- Software Engineer](mailto:m.diaa@phoenix-mea.com)
 
-142. [Origin -- Backend Engineer](mailto:info@origin-me.com)
+141. [Origin -- Backend Engineer](mailto:info@origin-me.com)
 
-143. [Astra Tech -- Backend
+142. [Astra Tech -- Backend
      Engineer](https://docs.google.com/forms/d/e/1FAIpQLSc5NOgHTFwUBRqlS2sDmSTZ1i7rbFNr1kvhEbOFdgJ39g6s8Q/viewform?pli=1)
      and throght [mail](mailto:hr@astra-tech.net) (Recommended Company)
 
-144. [AMIT Backend
+143. [AMIT Backend
      Engineer](https://forms.office.com/pages/responsepage.aspx?id=Wmb5bsOz4E-Psxpnkfu7zhpWfVAlmodCoy5fMjsBvo9URE1ZRE9BQjZTV0s0UzkxMjNPRUhITlZKNS4u&origin=QRCode)
 
-145. [Remote
+144. [Remote
      Coders](https://airtable.com/app4Vjqxs20dqkjcy/shrrCEiG6fe76ieDM)
      -- also in this
      [link](https://airtable.com/appnkoZsUj1rfuDz0/shrcjJmahyLe7qOTr)
      Intern (Recommended Company)
 
-146. Atos to [Aya](mailto:aya.elsayed@atos.net) and
+145. Atos to [Aya](mailto:aya.elsayed@atos.net) and
      [Salma](mailto:salma.fekry@atos.net)
 
-147. [UAE-based Company in Egypt -- Software
+146. [UAE-based Company in Egypt -- Software
      dev](https://docs.google.com/forms/d/e/1FAIpQLSeEfdSeHxJN2bkD5spjzDF600eIZxR4oJMdWYqGo0oLmKFOWA/viewform?pli=1)\
      \
      End Of Technovate Jobs
 
-148. [1D Consulting -- Software
+147. [1D Consulting -- Software
      Engineer](https://www.linkedin.com/jobs/view/software-engineer-at-1d-consulting-3769224326/?originalSubdomain=eg)
 
-149. [Thndr -- Software Engineer
+148. [Thndr -- Software Engineer
      Node.js](https://thndr-talent.freshteam.com/jobs/53r4Ig-PYrBQ/software-engineer-node-js)
-
-150. 
