@@ -339,3 +339,5 @@
 
 148. [Thndr -- Software Engineer
      Node.js](https://thndr-talent.freshteam.com/jobs/53r4Ig-PYrBQ/software-engineer-node-js)
+
+150. [Rawmart -- Backend Engineer Node.js](https://lnkd.in/d3QtutGb) and I sent CV to this [mail](mailto:Info@rawmartapp.com)
