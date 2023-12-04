@@ -339,7 +339,9 @@
 147. [1D Consulting -- Software
      Engineer](https://www.linkedin.com/jobs/view/software-engineer-at-1d-consulting-3769224326/?originalSubdomain=eg)
 
-148. [Thndr -- Software Engineer
+148. [Tactful - More jobs, I applied as backend intern in the pool of talents](https://tactful.ai/jobs/)
+
+149. [Thndr -- Software Engineer
      Node.js](https://thndr-talent.freshteam.com/jobs/53r4Ig-PYrBQ/software-engineer-node-js)
 
 150. [Rawmart -- Backend Engineer Node.js](https://lnkd.in/d3QtutGb) and I sent CV to this [mail](mailto:Info@rawmartapp.com)
