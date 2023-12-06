@@ -338,10 +338,16 @@
 
 147. [1D Consulting -- Software
      Engineer](https://www.linkedin.com/jobs/view/software-engineer-at-1d-consulting-3769224326/?originalSubdomain=eg)
+     
+149. [Tactful - More jobs, I applied as backend intern in the pool of talents](https://tactful.ai/jobs/)
 
-148. [Tactful - More jobs, I applied as backend intern in the pool of talents](https://tactful.ai/jobs/)
-
-149. [Thndr -- Software Engineer
+150. [Thndr -- Software Engineer
      Node.js](https://thndr-talent.freshteam.com/jobs/53r4Ig-PYrBQ/software-engineer-node-js)
 
-150. [Rawmart -- Backend Engineer Node.js](https://lnkd.in/d3QtutGb) and I sent CV to this [mail](mailto:Info@rawmartapp.com)
+151. [Rawmart -- Backend Engineer Node.js](https://lnkd.in/d3QtutGb) and I sent CV to this [mail](mailto:Info@rawmartapp.com)
+
+152. [Entry Level Backend for a company in USA through Riya Verma Email](mailto:riyaverma7759@gmail.com)
+
+153. [Alex for Programming - Node js Internship](https://wuzzuf.net/internship/iFkdh2v4GcKy-Node-JSNestsj--Backend-Developer---internship---remotely-Alexandria-For-Programming-Alexandria-Egypt)
+
+154. [Node JS Developer](mailto:ayeshanaveed.spyresync@gmail.com)
