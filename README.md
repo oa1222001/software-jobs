@@ -357,3 +357,7 @@
 156. [Orange - Junior Software Developer](https://www.careers-page.com/orange-eg/job/L8XV46RV)
 
 157. [Orange - Junior, .Net Software Engineer](https://www.careers-page.com/orange-eg/job/L3R545XW)
+
+158. [Talents Arena Internship Program 2023 - Backend Nodejs Developer](https://docs.google.com/forms/d/e/1FAIpQLScwBb6hwe2QjWzI4pXx1PO85mte0Pit_zUEYPs4CNVvZ2q-XA/viewform?pli=1&pli=1)
+
+159. [2024 Software Dev Engineer Internship](https://www.amazon.jobs/en/jobs/2512608/2024-software-dev-engineer-intern)
