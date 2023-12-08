@@ -351,3 +351,9 @@
 153. [Alex for Programming - Node js Internship](https://wuzzuf.net/internship/iFkdh2v4GcKy-Node-JSNestsj--Backend-Developer---internship---remotely-Alexandria-For-Programming-Alexandria-Egypt)
 
 154. [Node JS Developer](mailto:ayeshanaveed.spyresync@gmail.com)
+
+155. [ISchool - Coding Instructor Fultime](https://apply.workable.com/ischool/j/3D0C892864/) and also code instructor [here](https://apply.workable.com/ischool/j/74BF6E8B35/)
+
+156. [Orange - Junior Software Developer](https://www.careers-page.com/orange-eg/job/L8XV46RV)
+
+157. [Orange - Junior, .Net Software Engineer](https://www.careers-page.com/orange-eg/job/L3R545XW)
