@@ -360,4 +360,4 @@
 
 158. [Talents Arena Internship Program 2023 - Backend Nodejs Developer](https://docs.google.com/forms/d/e/1FAIpQLScwBb6hwe2QjWzI4pXx1PO85mte0Pit_zUEYPs4CNVvZ2q-XA/viewform?pli=1&pli=1)
 
-159. [2024 Software Dev Engineer Internship](https://www.amazon.jobs/en/jobs/2512608/2024-software-dev-engineer-intern)
+159. [Amazon 2024 Software Dev Engineer Internship](https://www.amazon.jobs/en/jobs/2512608/2024-software-dev-engineer-intern)
