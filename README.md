@@ -363,3 +363,5 @@
 159. [Amazon 2024 Software Dev Engineer Internship](https://www.amazon.jobs/en/jobs/2512608/2024-software-dev-engineer-intern)
 
 160. [Breadfast Data Entry](https://www.breadfast.com/jobs/6000141052/)
+
+161. [Siemens Digital Industries Software Internship - I applied for c++/c Developer, Fullstack, and Frontend](https://docs.google.com/forms/d/e/1FAIpQLSfKJMbk-ZrcTMLsMheov6tj_ice7S4j_8HlBAyMOG3xD9x9-A/viewform)
