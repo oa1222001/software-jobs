@@ -360,8 +360,14 @@
 
 158. [Talents Arena Internship Program 2023 - Backend Nodejs Developer](https://docs.google.com/forms/d/e/1FAIpQLScwBb6hwe2QjWzI4pXx1PO85mte0Pit_zUEYPs4CNVvZ2q-XA/viewform?pli=1&pli=1)
 
-159. [Amazon 2024 Software Dev Engineer Internship](https://www.amazon.jobs/en/jobs/2512608/2024-software-dev-engineer-intern)
+159. [Robotics Software Intern 2024 Rapyuta](https://apply.workable.com/rapyuta-robotics/j/3ADFC72B04/)
 
-160. [Breadfast Data Entry](https://www.breadfast.com/jobs/6000141052/)
+160. [Software Engineer at OPN also applied in talents bank https://boards.greenhouse.io/opn/jobs/4883344004](https://www.opn.ooo/th-en/careers/4412502004/)
 
-161. [Siemens Digital Industries Software Internship - I applied for c++/c Developer, Fullstack, and Frontend](https://docs.google.com/forms/d/e/1FAIpQLSfKJMbk-ZrcTMLsMheov6tj_ice7S4j_8HlBAyMOG3xD9x9-A/viewform)
+161. [Amazon 2024 Software Dev Engineer Internship](https://www.amazon.jobs/en/jobs/2512608/2024-software-dev-engineer-intern)
+
+162. [Breadfast Data Entry](https://www.breadfast.com/jobs/6000141052/)
+
+163. [Siemens Digital Industries Software Internship - I applied for c++/c Developer, Fullstack, and Frontend](https://docs.google.com/forms/d/e/1FAIpQLSfKJMbk-ZrcTMLsMheov6tj_ice7S4j_8HlBAyMOG3xD9x9-A/viewform)
+
+164. [Software Engineer at Kiwi - I applied for same role but in 3 different cities in (Bratislava, Brno, and Prague) ](https://jobs.kiwi.com/jobs/software-engineer-for-search-backend-tribe/)
