@@ -371,3 +371,27 @@
 163. [Siemens Digital Industries Software Internship - I applied for c++/c Developer, Fullstack, and Frontend](https://docs.google.com/forms/d/e/1FAIpQLSfKJMbk-ZrcTMLsMheov6tj_ice7S4j_8HlBAyMOG3xD9x9-A/viewform)
 
 164. [Software Engineer at Kiwi - I applied for same role but in 3 different cities in (Bratislava, Brno, and Prague) ](https://jobs.kiwi.com/jobs/software-engineer-for-search-backend-tribe/)
+
+    Starting of AmCham Jobs
+165. [Backend Developer - سلاح التلميذ](https://docs.google.com/forms/d/e/1FAIpQLSeYzGrEMbwgTDmrWb8lJ0Nq2D6cvzZEGKQS0Sj48wXW15Jxkw/viewform?pli=1)
+
+166. [Software Developer - Heidelberg Materials Egypt Employment Fair Application Form 2023](https://docs.google.com/forms/d/e/1FAIpQLScRiO79T3blYNJ-lY9rFYpf-x3CKtquOmfD3Z5jP9wPbWQUuw/viewform?pli=1)
+
+167. [Backend Developer - BBI.AI](mailto:talents@bbi.ai)
+
+168. [Backend Developer - Mazars](https://www.mazars.com.eg/Home/Join-us/Job-application-form)
+
+169. [Backend Developer - Miraco](mailto:cv@miraco.com.eg)
+
+170. [Juhayna - Backend Developer](mailto:careers@juhayna.com)
+
+171. [Arabian Cement Company (ACC) - Backend Developer](https://docs.google.com/forms/d/e/1FAIpQLSeoOgrBN7JGiFjsJ1hUwZnJK_4R5oN9dbjNQL9PkeN255lDpg/viewform)
+
+172. [Bahna Engineering - Backend Engineer](mailto:hr@bahnaengineering.com)
+
+173. [Keys - Backend Engineer](https://forms.zohopublic.com/keys-group/form/Keys/formperma/2HlgugjgN8QefJ8dAqkfRAVUGF7y1Gpj-CWvAl2xjBM)
+
+174. [El Abd Group - Backend Developer](mailto:hr@elabdgroup.com)
+     End Of AmCham Jobs
+175. 
+
