@@ -372,7 +372,7 @@
 
 164. [Software Engineer at Kiwi - I applied for same role but in 3 different cities in (Bratislava, Brno, and Prague) ](https://jobs.kiwi.com/jobs/software-engineer-for-search-backend-tribe/)
 
-    Starting of AmCham Jobs
+     Starting of AmCham Jobs
 165. [Backend Developer - سلاح التلميذ](https://docs.google.com/forms/d/e/1FAIpQLSeYzGrEMbwgTDmrWb8lJ0Nq2D6cvzZEGKQS0Sj48wXW15Jxkw/viewform?pli=1)
 
 166. [Software Developer - Heidelberg Materials Egypt Employment Fair Application Form 2023](https://docs.google.com/forms/d/e/1FAIpQLScRiO79T3blYNJ-lY9rFYpf-x3CKtquOmfD3Z5jP9wPbWQUuw/viewform?pli=1)
@@ -394,6 +394,8 @@
 174. [El Abd Group - Backend Developer](mailto:hr@elabdgroup.com)
 
      End Of AmCham Jobs
+
+175. [Smartware - .Net Developer](mailto:Hiring@smartware.ae)
 
 176. 
 
