@@ -397,5 +397,7 @@
 
 175. [Smartware - .Net Developer](mailto:Hiring@smartware.ae)
 
-176. 
+176. [Update - Backend (Node.JS) Intern](https://docs.google.com/forms/d/e/1FAIpQLSeVBFRUYUSwca6tMq1CIeGvjBfYJLescHdKfHIHVoKc7-lG1g/viewform?pli=1)
+
+177. [Nahdet Mist - Backend Developer](https://wuzzuf.net/jobs/p/E6l1RDsUCTia-Backend-Developer-Nahdet-Misr-Publishing-Group-Giza-Egypt)
 
