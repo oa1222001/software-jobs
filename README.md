@@ -401,3 +401,5 @@
 
 177. [Nahdet Mist - Backend Developer](https://wuzzuf.net/jobs/p/E6l1RDsUCTia-Backend-Developer-Nahdet-Misr-Publishing-Group-Giza-Egypt)
 
+178. [Cy-Verse - fullstack developer (Node and React) ](mailto:jobs@cy-verse.io)
+
