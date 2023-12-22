@@ -405,4 +405,6 @@
 
 179. [SkyLink 01553250155 - Node.js Developer](https://www.facebook.com/ghareebelshaikh/posts/pfbid02rebf4w5nSjcyJsZTtM7VDgALYgfpPqF9deSYavVUJc92kRSmt8tPuqx87gwgdLZJl)
 
+180. [Azdan - Junior Backend Developer (Node.js)](https://azdan.freshteam.com/jobs/daIDAqGCc9KD/junior-software-engineer-backend-remote)
+
 
