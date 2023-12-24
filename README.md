@@ -407,4 +407,26 @@
 
 180. [Azdan - Junior Backend Developer (Node.js)](https://azdan.freshteam.com/jobs/daIDAqGCc9KD/junior-software-engineer-backend-remote)
 
+Start of Jobzella Event
+181. [Riseup Group (Recruitement Agency) with code 2 - Backend Developer](https://docs.google.com/forms/d/e/1FAIpQLSfoll9WzukLzj9n7OVs0E0J09i4ilL8mIWOqNhX9meYqtLb5g/viewform?pli=1)
+
+182. [Nozom Tech - Backend Developer](mailto:info@nozomtechs.com)
+
+183. [Itida - Backend Dev](mailto:kamr@itida.gov.eg)
+
+184. [Amanleek - Backend Dev (Also to this mail careers@amanleek.com)](https://forms.zohopublic.com/tech53/form/AmanleekJobzellaEmploymentFair/formperma/8OjhOwX6hNtt-54t4UqQ9omT_8VXcbWMqEsd9ywr6hI)
+
+185. [Geomatx - Backend Dev](https://docs.google.com/forms/d/e/1FAIpQLSey3rTUs_1N3SrajwkjRc6mvbiS2fOvRvyTYR7bjAk9BvKXCw/viewform)
+
+186. [EgyCham - Backend Dev](mailto:hr@egycham.org)
+
+187. [Banker Lounge - Backend Dev](mailto:info@bankerloungegmail.com)
+
+188. [PaySky - Backend Dev](mailto:info@paysky.io)
+
+189. [YServiceHR (Recruitment Agency) - Backend Dev](mailto:a.kamal@yservicehr.com)
+End of Jobzella Event
+190. 
+
+
 
