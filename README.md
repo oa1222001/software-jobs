@@ -426,7 +426,8 @@ Start of Jobzella Event
 
 189. [YServiceHR (Recruitment Agency) - Backend Dev](mailto:a.kamal@yservicehr.com)
 End of Jobzella Event
-190. 
+
+190. [Dewan Software - .Net Software](mailto:internship@dewansoft.com)
 
 
 
