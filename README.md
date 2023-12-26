@@ -429,5 +429,9 @@ End of Jobzella Event
 
 190. [Dewan Software - .Net Software](mailto:internship@dewansoft.com)
 
+191. [Octane Solutions - Junior Backend Dev](https://wuzzuf.net/jobs/p/5CsEwJprsc7L-Junior-Backend-Engineer-Octane-solutions-Cairo-Egypt)
+
+192. [Bosta - Junior/Fresh-graduate SW Support Engineer](https://jobs.lever.co/Bosta/12811577-f8ac-40de-868b-d4045bfa69f8)
+
 
 
