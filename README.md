@@ -433,5 +433,8 @@ End of Jobzella Event
 
 192. [Bosta - Junior/Fresh-graduate SW Support Engineer](https://jobs.lever.co/Bosta/12811577-f8ac-40de-868b-d4045bfa69f8)
 
+193. [Yomicepa - Software Engineer](https://docs.google.com/forms/d/e/1FAIpQLSeBs4g6wn1E7U1zMkoR95rB8MXvGKnHsecznbVu_lTGqeN64Q/viewform)
+
+
 
 
