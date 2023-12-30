@@ -435,6 +435,8 @@ End of Jobzella Event
 
 193. [Yomicepa - Software Engineer](https://docs.google.com/forms/d/e/1FAIpQLSeBs4g6wn1E7U1zMkoR95rB8MXvGKnHsecznbVu_lTGqeN64Q/viewform)
 
+194. [Efficient Vision - Front-End Dev](mailto:careers@effvision.com)
+
 
 
 
