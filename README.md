@@ -437,6 +437,9 @@ End of Jobzella Event
 
 194. [Efficient Vision - Front-End Dev through link and through mail careers@effvision.com](https://careers.effvision.com/jobs/Careers/687437000003941072/Frontend-Intern?source=CareerSite)
 
+195. [NadSoft - Back end Dev](https://www.linkedin.com/jobs/view/3794440194/)
+
+
 
 
 
