@@ -441,6 +441,9 @@ End of Jobzella Event
 
 196. [Trackers - Node.js Dev](mailto:admin@trackers.ae)
 
+197. [High Output Ventures - NodeJS Dev](https://high-output-ventures.breezy.hr/p/a810cebfb9a9-backend-developer?source=jooble)
+
+
 
 
 
