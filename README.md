@@ -443,6 +443,9 @@ End of Jobzella Event
 
 197. [High Output Ventures - NodeJS Dev](https://high-output-ventures.breezy.hr/p/a810cebfb9a9-backend-developer?source=jooble)
 
+198. [Axis - Backend Nodejs Dev](https://www.axisapp.com/jobs-board?gh_jid=4269378101&gh_src=0fc4ed62teu&source=LinkedIn)
+
+
 
 
 
